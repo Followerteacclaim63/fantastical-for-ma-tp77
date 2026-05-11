@@ -1,4 +1,4 @@
-#  
+#  Get the ultimate Fantastical for macOS plugin with Fantastical for macOS elite Plugin: cloud backup & focus mode. Featuring cloud backup and focus mode, it's the best choice for
 
 
 
